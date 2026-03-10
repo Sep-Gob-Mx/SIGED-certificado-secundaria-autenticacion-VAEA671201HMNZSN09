@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VAEA671201HMNZSN09
+VAEA671201HMNZSN09
